@@ -1,0 +1,5 @@
+- Hey, this is @aaronyohana's GitHub! (obviously)
+- I am currently a student on track to get a B.S in Computer Science
+- One thing about me is that I am a passionate learner and I hope to fill this page with personal projects
+- I am fascinated with Electronics, Music Technology, and Software Development
+- I love working with people! Contact me at aaronyohana04@gmail.com to collaborate.
